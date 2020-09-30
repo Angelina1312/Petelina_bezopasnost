@@ -1,0 +1,1 @@
+# Petelina_bezopasnost
